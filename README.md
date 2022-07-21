@@ -1,4 +1,4 @@
-My nickname is Okarisu and I am grammar school student from Czech republic, hopefully graduating next year and becoming university student at @cvut FIT.
+My nickname is Okarisu and I am grammar school student from Czech republic, hopefully graduating next year and becoming university student at CVUT FIT.
 
 I like programming, but for now, I'd consider myself hobbyist, despite I try to improve myself as much as possible.
 
